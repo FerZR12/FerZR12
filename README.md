@@ -15,6 +15,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-![](https://www.whoa.in/gallery/hello-gifs--hi-gifs---funny-hello-gifs---get-the-best-gif-on-giphy)
-
+![](https://giphy.com/gifs/hello-Cmr1OMJ2FN0B2)
 
